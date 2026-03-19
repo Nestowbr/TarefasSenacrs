@@ -1,4 +1,4 @@
-O trabalho Fo feito pelos integras:
+O trabalho Fo feito pelos integrantes:
 
 Lider: Ernesto Rocha
 
